@@ -1,4 +1,4 @@
-# 
+# Get the ultimate perpetual trading bot with top perpetual trading bot Algorithm | take-profit + price-monitoring. Featuring take-profit and price-monitoring, it's the best choice
 
 
 
